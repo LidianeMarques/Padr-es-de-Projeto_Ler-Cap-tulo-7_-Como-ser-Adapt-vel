@@ -1,0 +1,1 @@
+# Padr-es-de-Projeto_Ler-Cap-tulo-7_-Como-ser-Adapt-vel
